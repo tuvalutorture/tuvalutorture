@@ -21,7 +21,7 @@ Lived a freak of nature named Sir Psycho
 Sir Psycho Sexy that is me  
 Sometimes I find I need to scream   
 
-kefka from ffvi was kinda based ngl and his boss theme is my spirit animal
+kefka from ffvi was kinda based and in the right ngl and his boss theme is my spirit animal
 
 ### Do it. ***You won't.***
 ![KITTY.](FORKBOMB_CAT.png)
