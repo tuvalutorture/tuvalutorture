@@ -14,13 +14,10 @@ p.s.
 
 please send peach schnapps my sanity is plummeting. i cannot take x86 assembly much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
 
-A long, long, long, long time ago
-
-Before the wind, before the snow
-
-Lived a man, lived a man I know
-
-Lived a freak of nature named Sir Psycho
+A long, long, long, long time ago  
+Before the wind, before the snow 
+Lived a man, lived a man I know  
+Lived a freak of nature named Sir Psycho  
 
 ### Do it. ***You won't.***
 ![KITTY.](FORKBOMB_CAT.png)
