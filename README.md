@@ -10,5 +10,11 @@ One project I'm currently actively working on is [MacInDOSh, a free, open source
 
 If you need to contact me for any reason, feel free to reach out at my email, tuvalutorture@icloud.com.
 
+p.s.
+
+please send peach schnapps my sanity is plummeting 
+
+i cannot take the asm much longer
+
 ### Do it. ***You won't.***
 ![KITTY.](FORKBOMB_CAT.png)
