@@ -17,7 +17,9 @@ please send peach schnapps my sanity is plummeting. i cannot take x86 assembly m
 A long, long, long, long time ago  
 Before the wind, before the snow  
 Lived a man, lived a man I know   
-Lived a freak of nature named Sir Psycho  
+Lived a freak of nature named Sir Psycho 
+Sir Psycho Sexy that is me  
+Sometimes I find I need to scream   
 
 kefka from ffvi was kinda based ngl and his boss theme is my spirit animal
 
