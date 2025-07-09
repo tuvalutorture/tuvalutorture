@@ -10,11 +10,9 @@ check out this lovely project i'm actively working on that might get me sued by 
 
 If you need to contact me for any reason, feel free to reach out at my email, tuvalutorture@icloud.com.
 
-<small>p.s.</small>
+p.s.
 
-<small>please send peach schnapps my sanity is plummeting </small>
-
-<small>i cannot take the asm much longer</small>
+please send peach schnapps my sanity is plummeting. i cannot take the asm much longer
 
 ### Do it. ***You won't.***
 ![KITTY.](FORKBOMB_CAT.png)
