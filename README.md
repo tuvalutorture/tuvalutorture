@@ -4,7 +4,7 @@ I'm a 14 year old hobbyist coder, who likes to make miscellaneous terminal appli
 
 I'm also currently working on my own Unity project, which i plan to eventually release :DDD
 
-check out this lovely project i'm actively working on that might get me sued by a trillion-dollar company! [MacInDOSh, a free, open source recreation of the Classic Mac OS!](https://github.com/turrnutorg/MacInDOSh)
+check out this lovely project i'm actively working on that might get me sued (or hopefully hired. always a non-zero chance amirite? *sobs violently*) by a trillion-dollar company! [MacInDOSh, a free, open source recreation of the Classic Mac OS!](https://github.com/turrnutorg/MacInDOSh)
 
 [my playlist on yt!](https://www.youtube.com/playlist?list=PLmJ5F-0P_7Fos94aCj0AHz82Fozx6nWkU)
 
