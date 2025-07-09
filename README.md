@@ -12,12 +12,12 @@ If you need to contact me for any reason, feel free to reach out at my email, tu
 
 p.s.
 
-please send peach schnapps my sanity is plummeting. i cannot take x86 assembly much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
+please send peach schnapps my sanity is plummeting quickly. i cannot take x86 assembly much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
 
 A long, long, long, long time ago  
 Before the wind, before the snow  
 Lived a man, lived a man I know   
-Lived a freak of nature named Sir Psycho 
+Lived a freak of nature named Sir Psycho   
 Sir Psycho Sexy that is me  
 Sometimes I find I need to scream   
 
