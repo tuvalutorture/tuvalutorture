@@ -1,6 +1,6 @@
 ### Hello! I'm tuvalutorture! :D
 
-I'm a 14 year old hobbyist coder, who likes to make miscellaneous terminal applications and OSes, using mostly C, but also learning Obj-C and Swift :P 
+I'm a 14 year old hobbyist coder, who likes to make miscellaneous programs, using mostly C, but also learning Obj-C and Swift :P 
 
 check out this lovely project i'm actively working on that might get me sued by a trillion-dollar company! (or hopefully hired. always a non-zero chance amirite? *sobs violently* PLEASE HIRE ME RECRUITER MAN AT THE FRUIT CULT I SWEAR I PLEDGE MY LOYALTY TO STEVE JOBS AND TIMOTHY PLEASE) [MacInDOSh, a free, open source standalone x86 recreation of the Classic Mac OS!](https://github.com/turrnutorg/MacInDOSh)
 
@@ -9,7 +9,7 @@ check out this lovely project i'm actively working on that might get me sued by 
 If you need to contact me for any reason, feel free to reach out at my email, tuvalutorture@icloud.com.
 
 ***p.s.***  
-# please send peach schnapps my sanity is plummeting quickly. i cannot take x86 assembly much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
+# please send peach schnapps my sanity is plummeting quickly. i cannot take C much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
 
 "A long, long, long, long time ago  
 Before the wind, before the snow  
