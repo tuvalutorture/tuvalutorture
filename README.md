@@ -9,7 +9,7 @@ check out this lovely project i'm actively working on that might get me sued by 
 If you need to contact me for any reason, feel free to reach out at my email, tuvalutorture@icloud.com.
 
 ***p.s.***  
-# please send peach schnapps my sanity is plummeting quickly. i cannot take C much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
+# please send peach schnapps my sanity is plummeting quickly. i cannot take C much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
 
 "A long, long, long, long time ago  
 Before the wind, before the snow  
@@ -17,7 +17,7 @@ Lived a man, lived a man I know
 Lived a freak of nature named Sir Psycho   
 Sir Psycho Sexy that is me  
 Sometimes I find I need to scream"  
-- Antonio Kaledioscope (probably)
+-Antonio Kaledioscope (i think that's his name)
 
 kefka from ffvi was kinda based and in the right ngl  
 and his boss theme is my spirit animal  
