@@ -1,4 +1,4 @@
-### Hello! I'm tuvalutorture! :D
+ ### Hello! I'm tuvalutorture! :D
 
 I'm a hobbyist coder, who likes to make miscellaneous programs, using mostly C, but also learning Obj-C and Swift :P 
 
@@ -11,16 +11,15 @@ If you need to contact me for any reason, feel free to reach out at my email, tu
 ***p.s.***  
 # please send peach schnapps my sanity is plummeting quickly. i cannot take C much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
 
-"Right or wrong, my song is strong
-You don't like it, get along
-Say what I want, do what I can
-Death to the message of the Ku Klux Klan
-
-I don't buy supremacy
-A-media chief, you menace me
-The people you say cause all the crime
-Wake up motherfucker and smell the slime"  
--Antonio Kaledioscope (i think that's his name)
+"Right or wrong, my song is strong  
+You don't like it, get along  
+Say what I want, do what I can  
+Death to the message of the Ku Klux Klan  
+I don't buy supremacy  
+A-media chief, you menace me  
+The people you say cause all the crime  
+Wake up motherfucker and smell the slime"   
+-"The Power of Equality", rhcp
 
 kefka from ffvi was kinda based and in the right ngl  
 and his boss theme is my spirit animal  
