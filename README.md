@@ -1,6 +1,6 @@
 ### Hello! I'm tuvalutorture! :D
 
-I'm a 14 year old hobbyist coder, who likes to make miscellaneous programs, using mostly C, but also learning Obj-C and Swift :P 
+I'm a hobbyist coder, who likes to make miscellaneous programs, using mostly C, but also learning Obj-C and Swift :P 
 
 check out this lovely project i'm actively working on that might get me sued by a trillion-dollar company! (or hopefully hired. always a non-zero chance amirite? *sobs violently* PLEASE HIRE ME RECRUITER MAN AT THE FRUIT CULT I SWEAR I PLEDGE MY LOYALTY TO STEVE JOBS AND TIMOTHY PLEASE) [MacInDOSh, a free, open source standalone x86 recreation of the Classic Mac OS!](https://github.com/turrnutorg/MacInDOSh)
 
@@ -21,6 +21,8 @@ Sometimes I find I need to scream"
 
 kefka from ffvi was kinda based and in the right ngl  
 and his boss theme is my spirit animal  
+
+## oh btw im 14 just fyi
 
 ### make sure to press enter after putting in his name
 ![KITTY.](FORKBOMB_CAT.png)
