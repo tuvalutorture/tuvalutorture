@@ -6,3 +6,7 @@ If you need to contact me for any reason, feel free to reach out at my email, tu
 
 ***p.s.***  
 # please send peach schnapps my sanity is plummeting quickly. i cannot take C much longer make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop make it stop
+
+i'll give 10 usd to the first person to place a pipebomb in my mailbox /hj
+
+i wanna be just like kefka from FFVI when i grow up
