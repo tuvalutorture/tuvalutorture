@@ -4,7 +4,7 @@ I'm a hobbyist coder, who likes to make miscellaneous programs and OSes, using m
 
 If you need to contact me for any reason, feel free to reach out at my email, tuvalutorture@icloud.com =3
 
-# my repos / projects :)
+## my repos / projects :)
 
 [want some DOS fuckery? click here](https://github.com/tuvalutorture/DOS-Paint)  
 [wanna write your own code? click here](https://github.com/tuvalutorture/SIMAS)  
