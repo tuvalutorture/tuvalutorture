@@ -19,6 +19,8 @@ i'll give 10 usd to the first person to place a pipebomb in my mailbox /hj
 
 i wanna be just like kefka from FFVI when i grow up
 
+free my man luigi mangione  
+
 i think we should humanely euthanize C devs.  
 no not for an evil reason i just think they shouldn't be forced to keep suffering pointer arithmetic at the hands of our corporate overlords :)  
 joking of course
