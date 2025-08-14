@@ -9,7 +9,7 @@ If you need to contact me for any reason, feel free to reach out at my email, tu
 [want some DOS fuckery? click here](https://github.com/tuvalutorture/DOS-Paint)  
 [wanna write your own code? click here](https://github.com/tuvalutorture/SIMAS)  
 [wanna play some small, shitty games? click here](https://github.com/tuvalutorture/game-collection)  
-[wanna read one of my future projects? click here](https://github.com/tuvalutorture/J-nanin_Engine)  
+[wanna read one of my future projects? click here](https://github.com/Ornythorinque-Studios-LLC/J-nanin_Engine)  
 [wanna mess around with an open source OS? click here](https://github.com/turrnutorg/beacon)  
 
 ***p.s.***  
